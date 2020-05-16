@@ -1,0 +1,1 @@
+# starsy.co
